@@ -1,2 +1,2 @@
 # IMH-PACKAGING
-How to Choose the Right Size for Die Cut Mylar Bags
+IMH PACKAGING is a core producer for all types of manufacturing, packaging, and printing.
